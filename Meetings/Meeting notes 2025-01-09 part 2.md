@@ -1,4 +1,4 @@
-# Group meeting
+# Group meeting January 9th
 Did:
 - Discussed feedback
 

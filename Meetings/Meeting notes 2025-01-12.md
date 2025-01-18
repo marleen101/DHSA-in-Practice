@@ -1,4 +1,4 @@
-# Group meet
+# Group meet January 12th
 Did:  
 - Criminology: 1970 switch in pov: from “perpetrators need help” to “victims need help, perps need punishment” -> chronological comparison
 - Using UK outlets -> seem to have more variability than e.g. US ones

@@ -1,4 +1,4 @@
-# Supervisor meet
+# Supervisor meet January 14th
 Feedback:
 - As a general question yes, 
 - Originality! Maybe find a more specific one, that’s a subquestion of our current RQ, especially if we’re doing a comparison 
